@@ -1,0 +1,1 @@
+# Wise-Registry-Cleaner-Pro-2025
